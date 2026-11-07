@@ -23,7 +23,7 @@ I also run "Yoruba Gems with Táyélolú", where I share Yorùbá language and c
 - I read my work aloud before I send it.
 
 ## Contact
-Email:bukoyetayemary1@gmail.com 
+Email:bukoyemary0117@gmail.com
 
 Instagram
 https://www.instagram.com/iyebiye117?cplk=MWIwM2QyeWRyOHJpcw==
